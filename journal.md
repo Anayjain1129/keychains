@@ -16,3 +16,12 @@ i just need to lockin and improve my CAD skills so im making different types of 
 as far as now in total i have made 7 keychains but i need to make moree!!!!!!!!!! so yea be right back 🖤
 
 **Total time spent: 2hr 28min**
+
+# July 28th: LOCKIN 2!!
+i locked in so hard i really need to complete my hours i have done like 3 hr 45 mins or smtg so yeaa!! ik tuff right! i have to train to catch tmr at like 9.30 am i hope that i'll be able to complete my hours in the train or im never gonna do it when i reach mumbai so yea so i made more designs today!! and also i started with a very complicated design which is a bmw alloy keychain which is like really really tuff it's still not completed it's not a 2d keychain it's a 3d keychain of as bmw tyre 
+<img width="851" height="471" alt="image" src="https://github.com/user-attachments/assets/7a36bd54-3ade-4b44-9b90-4a4c3938b375" />
+<img width="603" height="635" alt="image" src="https://github.com/user-attachments/assets/26a4154a-c127-40a1-8133-b460a636ad00" />
+<img width="996" height="843" alt="image" src="https://github.com/user-attachments/assets/fd58d547-31b7-40f0-8ee8-1f744fb1c00f" />
+i'll be back in like 5 mins and work moreee!! lockin tonight!! 
+
+**Total time spent: 3hr 50min**
