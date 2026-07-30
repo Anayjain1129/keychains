@@ -37,3 +37,7 @@ okay so i got off the train and when i got in my unc's house i started working r
 okay now i think im good to go now im gonna submit this project! all the keychains look good and everything! time to setup github repo and write readme and then submit!!
 
 <img width="1421" height="368" alt="image" src="https://github.com/user-attachments/assets/42047fea-fbda-483e-8e45-52d42d635ac9" />
+
+Okay so now i'm done with repo!! time to submit! 
+
+**Total time spent: 1hr 16 min**
