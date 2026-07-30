@@ -32,3 +32,8 @@ okay so i got off the train and when i got in my unc's house i started working r
 <img width="1613" height="486" alt="image" src="https://github.com/user-attachments/assets/48609212-abfb-4a6d-a652-fc95f11b8c6a" />
 
 **Total time spent: 2 hour 6 mins**
+
+# July 30th: LOCKIN 4!!
+okay now i think im good to go now im gonna submit this project! all the keychains look good and everything! time to setup github repo and write readme and then submit!!
+
+<img width="1421" height="368" alt="image" src="https://github.com/user-attachments/assets/42047fea-fbda-483e-8e45-52d42d635ac9" />
