@@ -25,3 +25,10 @@ i locked in so hard i really need to complete my hours i have done like 3 hr 45 
 i'll be back in like 5 mins and work moreee!! lockin tonight!! 
 
 **Total time spent: 3hr 50min**
+
+# July 30th: LOCKIN 3!!
+okay so i got off the train and when i got in my unc's house i started working right away and now i think im good to go and now i did like 2 hours and now i think i should sleep a lil i need to do like 3 more hours!! i'll get up in like 1 or 2 hours so yea!! gud nini! also i have flight to catch today! 
+
+<img width="1613" height="486" alt="image" src="https://github.com/user-attachments/assets/48609212-abfb-4a6d-a652-fc95f11b8c6a" />
+
+**Total time spent: 2 hour 6 mins**
